@@ -1,2 +1,2 @@
-# Dextra
-DEXTRA Surf Spot at https:www.dextrasurf.com
+# Deep Sea Salt Co
+Deep Sea Salt Co at https://www.deepseasaltco.com
